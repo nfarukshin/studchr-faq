@@ -10,7 +10,7 @@
 - [Как попасть на чемпионат?](https://vk.com/@chgk_student-kak-popast-na-studchr)
 - [Есть ли какие-то ограничения для участия в СтудЧРе?](https://vk.com/@chgk_student-vozrast-studchr)
 
-Если не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_42237587).
+Если не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_48233790).
 
 ### [Вернуться к списку вопросов](https://vk.com/@chgk_student-studchr-faq)
 
