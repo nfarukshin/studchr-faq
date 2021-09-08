@@ -21,7 +21,7 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 ### Другие вопросы
 
 - [Что такое СтудЧР?](https://vk.com/@chgk_student-studchr-wtf)
-- Если не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_42237587).
+- Если не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_48233790).
 
 ### [Вернуться к списку вопросов](https://vk.com/@chgk_student-studchr-faq)
 
