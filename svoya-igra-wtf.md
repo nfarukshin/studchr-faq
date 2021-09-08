@@ -14,7 +14,7 @@ https://www.youtube.com/watch?v=q0abzokQdRU
 
 - [Что такое Эрудит-квартет?](https://vk.com/@chgk_student-erudit-kvartet-wtf)
 - [Как попасть на чемпионат по Своей игре?](https://vk.com/@chgk_student-kak-popast-na-studchr-po-si)
-- Если не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_42237587).
+- Если не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_48233790).
 
 ### [Вернуться к списку вопросов](https://vk.com/@chgk_student-studchr-faq)
 
