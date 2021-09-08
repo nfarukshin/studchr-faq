@@ -35,7 +35,7 @@
 - [Как попасть на СтудЧР?](https://vk.com/@chgk_student-kak-popast-na-studchr)
 - [Где и когда будет СтудЧР?](https://vk.com/@chgk_student-gde-i-kogda)
 - [Если чемпионат студенческий, то играть могут только студенты? А еще ограничения есть?](https://vk.com/@chgk_student-vozrast-studchr)
-- Если не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_42237587).
+- Если не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_48233790).
 
 ### [Вернуться к списку вопросов](https://vk.com/@chgk_student-studchr-faq)
 
