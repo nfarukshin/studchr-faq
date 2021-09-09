@@ -17,7 +17,7 @@
 - [Где и когда](https://github.com/nfarukshin/studchr/blob/main/where.md)
 - [Сколько команд](https://github.com/nfarukshin/studchr/blob/main/how-mush-teams.md)
 - [Когда будет понятно, что мы прошли](https://github.com/nfarukshin/studchr/blob/main/where-when.md)
-- [Новые ограничения](https://github.com/nfarukshin/studchr/blob/main/other-restrictions.md)
+- [Новые ограничения](https://github.com/nfarukshin/studchr/blob/main/other-restrictions.md) — убрать эту ссылку
 - [Отборочные баллы](https://github.com/nfarukshin/studchr/blob/main/otbor-points.md)
 - [Отборочный и заявочный составы](https://github.com/nfarukshin/studchr/blob/main/sostav.md)
 - [Сколько человек в отборочном](https://github.com/nfarukshin/studchr/blob/main/otbor-sostav.md)
