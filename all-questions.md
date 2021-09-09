@@ -27,13 +27,12 @@
 1. [Где и когда будет СтудЧР?](https://vk.com/@chgk_student-gde-i-kogda)
 2. [Сколько команд попадёт на СтудЧР?](https://vk.com/@chgk_student-skolko-komand-popadet-na-studchr)
 3. [Когда станет известно, прошли ли мы на СтудЧР? Нам нужно много времени, чтобы выбить из вуза деньги на поездку](https://vk.com/@chgk_student-sroki)
-4. [Есть ли какие-то новые ограничения для участия?](https://vk.com/@chgk_student-vozrast-studchr)
-5. [Как разобраться в новых отборочных баллах?](https://vk.com/@chgk_student-otborochnye-bally-wtf)
-6. [Отборочный состав, заявочный состав… В чём разница?](https://vk.com/@chgk_student-otborochnyi-i-zayavochyi-sostavy)
-7. [Сколько человек может быть в отборочном составе?](https://vk.com/@chgk_student-how-much)
-8. [Можно ли в течение сезона играть в двух командах?](https://vk.com/@chgk_student-2-komandy)
-9. [Я не гражданин РФ, можно мне играть СтудЧР?](https://vk.com/@chgk_student-inostrancy)
-10. [Как получить вайлд-кард?](https://vk.com/@chgk_student-kak-poluchit-wild-card)
+4. [Как разобраться в новых отборочных баллах?](https://vk.com/@chgk_student-otborochnye-bally-wtf)
+5. [Отборочный состав, заявочный состав… В чём разница?](https://vk.com/@chgk_student-otborochnyi-i-zayavochyi-sostavy)
+6. [Сколько человек может быть в отборочном составе?](https://vk.com/@chgk_student-how-much)
+7. [Можно ли в течение сезона играть в двух командах?](https://vk.com/@chgk_student-2-komandy)
+8. [Я не гражданин РФ, можно мне играть СтудЧР?](https://vk.com/@chgk_student-inostrancy)
+9. [Как получить вайлд-кард?](https://vk.com/@chgk_student-kak-poluchit-wild-card)
 
 ## Организаторам
 
