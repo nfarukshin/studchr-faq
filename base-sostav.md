@@ -13,7 +13,7 @@
 - [Отборочный состав, заявочный состав… В чем разница?](https://vk.com/@chgk_student-otborochnyi-i-zayavochyi-sostavy)
 - [Нам в команду нужен игрок. Подскажите, где его найти](https://vk.com/@chgk_student-gde-naiti-igroka)
 - [Можно ли в течение сезона играть в двух командах?](https://vk.com/@chgk_student-2-komandy)
-- Если не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_42237587).
+- Если не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_48233790).
 
 ### [Вернуться к списку вопросов](https://vk.com/@chgk_student-studchr-faq)
 
