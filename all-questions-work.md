@@ -24,7 +24,7 @@
 - [Можно ли играть в двух командах](https://github.com/nfarukshin/studchr/blob/main/two-teams.md)
 - [Неграждане](https://github.com/nfarukshin/studchr/blob/main/foreigners.md)
 - [Вайлд-кард](https://github.com/nfarukshin/studchr/blob/main/wild-card.md)
-- [Как провести выводящий](https://github.com/nfarukshin/studchr/blob/main/vyvod-turnir.md)
-- [Может ли онлайн стать выводящим](https://github.com/nfarukshin/studchr/blob/main/vyvod-turnir-online.md)
-- [Хочу провести Студчр](https://github.com/nfarukshin/studchr/blob/main/organize-studchr.md)
+- [Как провести выводящий](https://github.com/nfarukshin/studchr/blob/main/vyvod-turnir.md) не доделано
+- [Может ли онлайн стать выводящим](https://github.com/nfarukshin/studchr/blob/main/vyvod-turnir-online.md) не доделано
+- [Хочу провести Студчр](https://github.com/nfarukshin/studchr/blob/main/organize-studchr.md) не доделано
 
