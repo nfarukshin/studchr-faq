@@ -2,6 +2,8 @@
 
 В этом разделе собраны вопросы, которые были бы полезны тем, кто недавно начал играть в интеллектуальные игры либо тем, для кого этот сезон — первый в студенческой карьере. Если вы не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_48233790).
 
+## Список вопросов
+
 1. [Что это вообще такое — СтудЧР?](https://vk.com/@chgk_student-for-newcomers?anchor=chto-eto-voobsche-takoe-studchr)
 2. [Во что играют на СтудЧРе?](https://vk.com/@chgk_student-for-newcomers?anchor=vo-chto-igrayut-na-studchre)
 3. [Что это за «Своя игра» такая? И почему она спортивная — все вопросы про спорт?](https://vk.com/@chgk_student-for-newcomers?anchor=chto-takoe-sportivnaya-svoya-igra-vse-voprosy-pro-sport)
