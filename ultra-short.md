@@ -22,4 +22,4 @@
 
 **Где почитать больше**: [развернутый FAQ](https://vk.com/@chgk_student-studchr-faq), [Положение о проведении СтудЧР](https://drive.google.com/file/d/1lR2C7aNHXHWPObhUpCpwTlyPojrEDyMj/view).
 
-*За остальной информацией о сезона 2021/2022 следите в паблике [«Студенческие интеллектуальные игры в России»](https://vk.com/chgk_student) и в нашем же [телеграм-канале](https://t.me/chgk_student_ru).*
+*За остальной информацией о сезоне 2021/2022 следите в паблике [«Студенческие интеллектуальные игры в России»](https://vk.com/chgk_student) и в нашем же [телеграм-канале](https://t.me/chgk_student_ru).*
