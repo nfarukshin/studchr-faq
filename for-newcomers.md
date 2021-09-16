@@ -19,7 +19,7 @@
 13. [Нам в команду нужен игрок. Подскажите, где его можно найти](https://vk.com/@chgk_student-for-newcomers?anchor=nam-v-komandu-nuzhen-igrok-podskazhite-gde-ego-mozhno-nayti)
 14. [Я хочу играть, но у меня нет команды. Можете помочь?](https://vk.com/@chgk_student-for-newcomers?anchor=ya-khochu-igrat-no-u-menya-net-komandy-mozhete-pomoch)
 
-*Если вы не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_48233790).*
+*Если вы не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_48233790). Если хотите вернуться на главную, вот [ссылка](https://vk.com/@chgk_student-studchr-faq).*
 
 ## Что это вообще такое — СтудЧР?
 
