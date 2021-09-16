@@ -27,7 +27,7 @@
 
 Попасть на СтудЧР можно как командой, так и в одиночку. Об условиях и возможностях читайте либо в [Положении](https://drive.google.com/file/d/1lR2C7aNHXHWPObhUpCpwTlyPojrEDyMj/view), либо в [наших карточках](https://vk.com/@chgk_student-studchr-faq).
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 ## Во что играют на СтудЧРе?
 
@@ -79,7 +79,7 @@
 
 Кроме того, на СтудЧРе играют в спортивную «Свою игру» (аналог известной телепередачи), а также командную разновидность той же игры — Эрудит-квартет. О них мы рассказали в отдельных вопросах — про [ССИ](https://vk.com/@chgk_student-for-newcomers?anchor=chto-takoe-sportivnaya-svoya-igra-vse-voprosy-pro-sport), про [ЭК](https://vk.com/@chgk_student-for-newcomers?anchor=chto-takoe-erudit-kvartet).
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 ## Что это за спортивная «Своя игра»? Все вопросы про спорт?
 
@@ -95,7 +95,7 @@ https://www.youtube.com/watch?v=q0abzokQdRU
 
 Попробовать поиграть удалённо можно в [специальном чате в Telegram](https://ru-chgk.livejournal.com/2200436.html), правила игры можно найти [здесь](https://telegra.ph/FAQ-po-Svoej-Igre-02-06).
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 ## Что такое Эрудит-квартет?
 
@@ -117,7 +117,7 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 
 В некоторых клубах играют в разновидность Эрудит-квартета под названием «Хамса». Правила там похожи, только раундов больше и очки начисляются немного иначе. Подробнее читайте в [Википедии](https://ru.wikipedia.org/wiki/Хамса_%28игра%29).
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 ## Как моя команда может попасть на Студенческий чемпионат России?
 
@@ -129,7 +129,7 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 
 Подробнее можно почитать в [отдельной статье](https://vk.com/@chgk_student-kak-popast-na-studchr).
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 ## Как попасть на Студенческий чемпионат России по Своей игре?
 
@@ -147,7 +147,7 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 
 Подробнее об отборе на СтудЧР по ССИ читайте в [отдельной статье](https://vk.com/@chgk_student-kak-popast-na-studchr-po-si).
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 ## Что такое ОВСЧ
 
@@ -163,7 +163,7 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 
 Чтобы получить баллы, важно отметить в заявке, что вы играете «в зачёт СтудЧР» (именно в него, а не просто в студенческий зачёт).
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 ## Асинхрон ОВСЧ — это как?
 
@@ -175,7 +175,7 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 
 В-третьих, если вы хотите попасть через ОВСЧ на СтудЧР, нужно понимать, что [отборочные баллы](https://vk.com/@chgk_student-for-elders?anchor=chto-takoe-otborochnye-bally-kak-v-nikh-razobratsya), которые вы получаете за игру в асинхроне (вне зависимости от того, оффлайн вы играете или онлайн), уменьшаются вдвое.
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 ## Как играть синхроны — в том числе и ОВСЧ — онлайн?
 
@@ -192,7 +192,7 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 
 Подробнее об организации процесса можно прочитать в [отдельной статье](https://vk.com/@chgk_student-ovsch-online-eto-kak).
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 ## Есть ли какие-то ограничения для участия в СтудЧРе?
 
@@ -204,7 +204,7 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 
 Кроме того, игроку нельзя находиться в двух отборочных составах одновременно. Что это такое, читайте [тут](https://vk.com/@chgk_student-for-elders?anchor=otborochny-sostav-zayavochny-sostav-v-ch-m-raznitsa), как этого избежать — [здесь](https://vk.com/@chgk_student-for-elders?anchor=mozhno-li-v-techenie-sezona-igrat-v-dvukh-komandakh).
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 ## Что такое базовый состав команды?
 
@@ -216,7 +216,7 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 
 В течение сезона игрок может состоять в базовых составах двух команд, но не одновременно. Чтобы выписаться из базового состава или записаться в него, достаточно написать на почту r-chgk@yandex.ru.
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 ## Играть в зачёт или не в зачёт — что это такое?
 
@@ -226,7 +226,7 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 
 Если же вы играете не в зачёт, то никаких ограничений нет, но и никаких плюшек для СтудЧРа от удачной игры вы тоже не получите. Кроме удовольствия, разумеется.
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 ## Нам в команду нужен игрок. Подскажите, где его можно найти
 
@@ -234,7 +234,7 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 
 Можно задействовать и более широкие инструменты — специальные сообщества, которые действуют в [ЖЖ](https://chgk-legionary.livejournal.com/), [Вконтакте](https://vk.com/chgk_legio) и [Facebook](https://www.facebook.com/groups/chgk.legion/), а также [московский](https://t.me/joinchat/Qw9oIL8cjUhhNjU6) или [питерский](https://t.me/joinchat/CLU4Q0gX-v4AUrsLGJIEqw) телеграм-чаты с поиском легионеров.
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 ## Я хочу играть, но у меня нет команды. Можете помочь?
 
@@ -242,6 +242,6 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 
 Можно задействовать и более широкие инструменты — специальные сообщества, которые действуют в [ЖЖ](https://chgk-legionary.livejournal.com/), [Вконтакте](https://vk.com/chgk_legio) и [Facebook](https://www.facebook.com/groups/chgk.legion/), а также [московский](https://t.me/joinchat/Qw9oIL8cjUhhNjU6) или [питерский](https://t.me/joinchat/CLU4Q0gX-v4AUrsLGJIEqw) телеграм-чаты с поиском легионеров.
 
-Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).
+***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
 *За остальной информацией о сезона 2021/2022 следите в паблике [«Студенческие интеллектуальные игры в России»](https://vk.com/chgk_student) и в нашем же [телеграм-канале](https://t.me/chgk_student_ru).*
