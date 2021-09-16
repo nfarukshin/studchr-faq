@@ -14,7 +14,7 @@
 8. [Я не гражданин РФ, можно мне играть СтудЧР?](https://vk.com/@chgk_student-for-elders?anchor=ya-negrazhdanin-rf-mozhno-mne-igrat-studchr)
 9. [Как получить вайлд-кард?](https://vk.com/@chgk_student-for-elders?anchor=kak-poluchit-vayld-kard)
 
-Если вы не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_48233790).
+Если вы не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_48233790). Если хотите вернуться на главную, вот [ссылка](https://vk.com/@chgk_student-studchr-faq).
 
 ## Где и когда будет СтудЧР?
 
