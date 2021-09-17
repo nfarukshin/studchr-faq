@@ -22,7 +22,7 @@
 В этом случае вам нужно следить за объявлениями онлайн-площадок:
 
 - на [сайте Антона Стальнухина](https://quiza.stalnuhhin.ee/chgkplan),
-- на сайте рейтинга (в разделе [«Онлайн-турниры»](https://rating.chgk.info/tournaments?name=%CE%ED%EB%E0%E9%ED:+)
+- на сайте рейтинга (в разделе [«Онлайн-турниры»](https://rating.chgk.info/tournaments?name=Онлайн:+)
 - в ЖЖ ([ru_chgk](https://ru-chgk.livejournal.com/) и [chgk](https://chgk.livejournal.com/)),
 - Facebook (в [«Спортивном ЧГК»](https://www.facebook.com/groups/chgk.global/) и [«Интеллектуальных играх онлайн»](https://www.facebook.com/groups/229434871583483/)),
 - Вконтакте ([ЧГК ВК](https://vk.com/chgkvk), [отдельном обсуждении](https://vk.com/topic-89780700_46158999) этой же группы или в группе [«Сахар. Интеллектуальные игры в Москве и онлайн»](https://vk.com/sugarchgk));
