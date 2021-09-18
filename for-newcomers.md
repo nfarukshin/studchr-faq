@@ -184,7 +184,7 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 Для начала нужно найти площадку, на которой можно играть. Стоит следить за объявлениями онлайн-площадок:
 
 - на [сайте Антона Стальнухина](https://quiza.stalnuhhin.ee/chgkplan),
-- на сайте рейтинга (в разделе [«Онлайн-турниры»](https://rating.chgk.info/tournaments?name=%CE%ED%EB%E0%E9%ED:+)
+- на сайте рейтинга (в разделе [«Онлайн-турниры»](https://rating.chgk.info/tournaments?name=Онлайн:+)
 - в ЖЖ ([ru_chgk](https://ru-chgk.livejournal.com/) и [chgk](https://chgk.livejournal.com/)),
 - Facebook (в [«Спортивном ЧГК»](https://www.facebook.com/groups/chgk.global/) и [«Интеллектуальных играх онлайн»](https://www.facebook.com/groups/229434871583483/)),
 - Вконтакте ([ЧГК ВК](https://vk.com/chgkvk), [отдельном обсуждении](https://vk.com/topic-89780700_46158999) этой же группы или в группе [«Сахар. Интеллектуальные игры в Москве и онлайн»](https://vk.com/sugarchgk));
@@ -204,7 +204,7 @@ https://www.youtube.com/watch?v=7jugYPRrGpA
 
 Еще одно ограничение касается [гражданства](https://vk.com/@chgk_student-for-elders?anchor=ya-negrazhdanin-rf-mozhno-mne-igrat-studchr): в команде (точнее, в ее [отборочном или заявочном составах](https://vk.com/@chgk_student-for-elders?anchor=otborochny-sostav-zayavochny-sostav-v-ch-m-raznitsa)) должно быть не более двух неграждан РФ.
 
-Кроме того, игроку нельзя находиться в двух отборочных составах одновременно. Что это такое, читайте [тут](https://vk.com/@chgk_student-for-elders?anchor=otborochny-sostav-zayavochny-sostav-v-ch-m-raznitsa), как этого избежать — [здесь](https://vk.com/@chgk_student-for-elders?anchor=mozhno-li-v-techenie-sezona-igrat-v-dvukh-komandakh).
+Кроме того, игроку нельзя находиться в двух отборочных составах одновременно. Что это такое, читайте [тут](https://vk.com/@chgk_student-for-elders?anchor=otborochny-sostav-zayavochny-sostav-v-ch-m-raznitsa), как всё-таки сыграть в сезоне в двух командах — [здесь](https://vk.com/@chgk_student-for-elders?anchor=mozhno-li-v-techenie-sezona-igrat-v-dvukh-komandakh).
 
 ***Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-newcomers?anchor=spisok-voprosov).***
 
