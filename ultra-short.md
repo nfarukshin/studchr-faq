@@ -8,9 +8,9 @@
 
 Следить за всеми турнирами можно в нашем [календаре](https://vk.com/@chgk_student-kalendar).
 
-Все без исключения игроки команды должны удовлетворять [возрастным ограничениям](https://vk.com/@chgk_student-for-newcomers?anchor=est-li-kakie-to-ogranichenia-dlya-uchastia-v-studchre): на момент начала сезона (то есть до 31 августа 2021 года) все они должны быть моложе 23 лет.
+Все без исключения игроки команды должны удовлетворять [возрастным ограничениям](https://vk.com/@chgk_student-for-newcomers?anchor=est-li-kakie-to-ogranichenia-dlya-uchastia-v-studchre): на момент начала сезона (то есть до 31 августа 2022 года включительно) все они должны быть моложе 23 лет.
 
-За своим и чужим прогрессом можно следить в листе ожидания (он появится в [паблике](https://vk.com/chgk_student) вскоре после проведения первого отборочного турнира — в этом сезоне им будет первый этап ОВСЧ).
+За своим и чужим прогрессом можно следить в [листе ожидания](https://docs.google.com/spreadsheets/d/1PTLvrU_Q08i5x8L5wNoDQB2pFI050rvHJ4VV_2_XckA/edit#gid=475949485).
 
 Перед игрой в таких турнирах не забывайте поставить в заявке галочку, что играете в зачёт СтудЧР. В состав для игры на таких турнирах нельзя брать игроков из других команд, которые ранее уже [играли в зачёт](https://vk.com/@chgk_student-for-newcomers?anchor=igrat-v-zach-t-ili-ne-v-zach-t-chto-eto-takoe).
 
@@ -18,8 +18,8 @@
 
 ## Игроку
 
-[В зачёт](https://vk.com/@chgk_student-for-newcomers?anchor=igrat-v-zach-t-ili-ne-v-zach-t-chto-eto-takoe) можно играть только за одну команду. Если сыграете за две, не сможете играть СтудЧР – вас дисквалифицируют. Но до 16 января можно сменить команду. Как это сделать, читайте [здесь](https://vk.com/@chgk_student-for-elders?anchor=mozhno-li-v-techenie-sezona-igrat-v-dvukh-komandakh).
+[В зачёт](https://vk.com/@chgk_student-for-newcomers?anchor=igrat-v-zach-t-ili-ne-v-zach-t-chto-eto-takoe) можно играть только за одну команду. Если сыграете за две, не сможете играть СтудЧР – вас дисквалифицируют. Но до 12 декабря можно сменить команду. Как это сделать, читайте [здесь](https://vk.com/@chgk_student-for-elders?anchor=mozhno-li-v-techenie-sezona-igrat-v-dvukh-komandakh).
 
 **Где почитать больше**: [развернутый FAQ](https://vk.com/@chgk_student-studchr-faq), [Положение о проведении СтудЧР](https://drive.google.com/file/d/1lR2C7aNHXHWPObhUpCpwTlyPojrEDyMj/view).
 
-*За остальной информацией о сезоне 2021/2022 следите в паблике [«Студенческие интеллектуальные игры в России»](https://vk.com/chgk_student) и в нашем же [телеграм-канале](https://t.me/chgk_student_ru).*
+*За остальной информацией о сезоне следите в паблике [«Студенческие интеллектуальные игры в России»](https://vk.com/chgk_student) и в нашем же [телеграм-канале](https://t.me/chgk_student_ru).*
