@@ -20,6 +20,6 @@
 
 [В зачёт](https://vk.com/@chgk_student-for-newcomers?anchor=igrat-v-zach-t-ili-ne-v-zach-t-chto-eto-takoe) можно играть только за одну команду. Если сыграете за две, не сможете играть СтудЧР – вас дисквалифицируют. Но до 12 декабря можно сменить команду. Как это сделать, читайте [здесь](https://vk.com/@chgk_student-for-elders?anchor=mozhno-li-v-techenie-sezona-igrat-v-dvukh-komandakh).
 
-**Где почитать больше**: [развернутый FAQ](https://vk.com/@chgk_student-studchr-faq), [Положение о проведении СтудЧР](https://drive.google.com/file/d/1lR2C7aNHXHWPObhUpCpwTlyPojrEDyMj/view).
+**Где почитать больше**: [развернутый FAQ](https://vk.com/@chgk_student-studchr-faq), [Положение о проведении СтудЧР](https://drive.google.com/file/d/1tGAe31MBBnZAgFj0f4y2js_J_n0DKunC/view).
 
 *За остальной информацией о сезоне следите в паблике [«Студенческие интеллектуальные игры в России»](https://vk.com/chgk_student) и в нашем же [телеграм-канале](https://t.me/chgk_student_ru).*
