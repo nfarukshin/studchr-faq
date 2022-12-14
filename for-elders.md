@@ -5,16 +5,17 @@
 ## Список вопросов
 
 1. [Где и когда будет СтудЧР?](https://vk.com/@chgk_student-for-elders?anchor=gde-i-kogda-budet-studchr)
-2. [Сколько команд попадёт на СтудЧР?](https://vk.com/@chgk_student-for-elders?anchor=skolko-komand-popad-t-na-studchr)
-3. [Когда станет известно, прошли ли мы на СтудЧР? Нам нужно много времени, чтобы выбить из вуза деньги на поездку](https://vk.com/@chgk_student-for-elders?anchor=kogda-stanet-izvestno-proshli-li-my-na-studchr-nam-nuzhno-mnogo-vremeni-chtoby-n)
-4. [Как разобраться в отборочных баллах?](https://vk.com/@chgk_student-for-elders?anchor=chto-takoe-otborochnye-bally-kak-v-nikh-razobratsya)
-5. [Мы играли в выводящий зачёт, но наших баллов в листе ожидания нет. Почему?]()
-6. [Отборочный состав, заявочный состав… В чём разница?](https://vk.com/@chgk_student-for-elders?anchor=otborochny-sostav-zayavochny-sostav-v-ch-m-raznitsa)
-7. [Сколько человек может быть в отборочном составе?](https://vk.com/@chgk_student-for-elders?anchor=skolko-chelovek-mozhet-byt-v-otborochnom-sostave)
-8. [Можно ли в течение сезона играть в двух командах?](https://vk.com/@chgk_student-for-elders?anchor=mozhno-li-v-techenie-sezona-igrat-v-dvukh-komandakh)
-9. [Как перейти из команды в команду в течение сезона?]()
-10. [Я не гражданин РФ, можно мне играть СтудЧР?](https://vk.com/@chgk_student-for-elders?anchor=ya-negrazhdanin-rf-mozhno-mne-igrat-studchr)
-11. [Как получить вайлд-кард?](https://vk.com/@chgk_student-for-elders?anchor=kak-poluchit-vayld-kard)
+2. [Кто редакторы СтудЧРа?](https://vk.com/@chgk_student-for-elders?anchor=kto-redaktory-studchra)
+3. [Сколько команд попадёт на СтудЧР?](https://vk.com/@chgk_student-for-elders?anchor=skolko-komand-popad-t-na-studchr)
+4. [Когда станет известно, прошли ли мы на СтудЧР? Нам нужно много времени, чтобы выбить из вуза деньги на поездку](https://vk.com/@chgk_student-for-elders?anchor=kogda-stanet-izvestno-proshli-li-my-na-studchr-nam-nuzhno-mnogo-vremeni-chtoby-n)
+5. [Как разобраться в отборочных баллах?](https://vk.com/@chgk_student-for-elders?anchor=chto-takoe-otborochnye-bally-kak-v-nikh-razobratsya)
+6. [Мы играли в выводящий зачёт, но наших баллов в листе ожидания нет. Почему?](https://vk.com/@chgk_student-for-elders?anchor=my-igrali-v-vyvodyaschiy-zach-t-no-nashikh-ballov-v-liste-ozhidania-net-pochemu)
+7. [Отборочный состав, заявочный состав… В чём разница?](https://vk.com/@chgk_student-for-elders?anchor=otborochny-sostav-zayavochny-sostav-v-ch-m-raznitsa)
+8. [Сколько человек может быть в отборочном составе?](https://vk.com/@chgk_student-for-elders?anchor=skolko-chelovek-mozhet-byt-v-otborochnom-sostave)
+9. [Можно ли в течение сезона играть в двух командах?](https://vk.com/@chgk_student-for-elders?anchor=mozhno-li-v-techenie-sezona-igrat-v-dvukh-komandakh)
+10. [Как перейти из команды в команду в течение сезона?]()
+11. [Я не гражданин РФ, можно мне играть СтудЧР?](https://vk.com/@chgk_student-for-elders?anchor=ya-negrazhdanin-rf-mozhno-mne-igrat-studchr)
+12. [Как получить вайлд-кард?](https://vk.com/@chgk_student-for-elders?anchor=kak-poluchit-vayld-kard)
 
 Если вы не нашли ответа на свой вопрос, задать его можно [здесь](https://vk.com/topic-99683830_48233790). Если хотите вернуться на главную, вот [ссылка](https://vk.com/@chgk_student-studchr-faq).
 
@@ -24,13 +25,32 @@
 
 *Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-elders?anchor=spisok-voprosov).*
 
+## Кто редакторы СтудЧРа?
+
+По туру **основной дисциплины** подготовят:
+• Максим Мерзляков
+• Андрей Островский
+• Антон Саксонов
+• Дмитрий Сахаров
+• Андрей Скиренко
+• Рузель Халиуллин, Мария Иванова и Павел Казначеев.
+
+**Командную игру на скорость без фальстартов** подготовят Николай Коврижных (отборочный этап) и Алексей Бороненко (финальный этап).
+
+Пакетом **спортивной Своей игры** займётся Денис Галиакберов.
+
+**Эрудит-квартет** напишет авторская группа из Игоря Кулешова, Егора Мамонтова, Артёма Рожкова, Эдгара Серобяна и Дмитрия Хмырова под топ-редактурой Иделии Айзятуловой.
+
+**Отбор на чемпионат по ССИ** напишут Артём Семёнов и Наиль Фарукшин.
+
+*Вернуться к [списку вопросов](https://vk.com/@chgk_student-for-elders?anchor=spisok-voprosov).*
+
 ## Сколько команд попадёт на СтудЧР?
 
 По умолчанию — не менее 50. Окончательное количество зависит от того, насколько велик игровой зал и сколько помещений для дополнительных дисциплин смог найти оргкомитет.
 
 Надо иметь в виду, что в число участников входят:
 
-- две команды города–организатора,
 - команды, получившие wild card оргкомитета,
 - остальные команды из листа ожидания в том порядке, в котором они в нём указаны.
 
